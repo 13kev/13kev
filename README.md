@@ -1,4 +1,4 @@
-### Opa! Me chamo Kev e estou navegando por este mundo de desenvolvimento e aprendendo tudo o que posso. Costumo dizer que sou uma esponja de conhecimento, absorvo tudo o que posso e filtro para agregar na minha bagagem. Prazer! 
+### Opa! Me chamo Kev e estou navegando por este mundo de desenvolvimento e aprendendo tudo o que posso. Costumo dizer que sou uma esponja de conhecimento, absorvo tudo o que me agrega. Prazer! 
 
 
 - 🔭 Atualmente trabalhando com contabilidade
