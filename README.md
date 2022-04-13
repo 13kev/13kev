@@ -4,7 +4,7 @@
 - 🔭 Atualmente trabalhando com contabilidade
 - 🌱 Navegando por back-end, front-end e banco! Ainda entendendo o terreno
 - 👯 Colaborar com projetos OpenSource e devolver à comunidade tudo o que venho aprendendo 
-- 📫 Discord kev0#5174 // E-mail karodrigues97@outlook.com // Instagram https://www.instagram.com/hellaw3ird/
+- 📫 Discord https://discord.com/channels/kev0#5174 // E-mail karodrigues97@outlook.com // Instagram https://www.instagram.com/hellaw3ird/ 
 - 😄 Ele/Dele
 
 <div>
