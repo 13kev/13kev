@@ -8,8 +8,8 @@ Currently learning front-end and looking to get the opportunity to contribute to
 
 - 🔭 Currently working with accounting while pursuing the dream to work with technology in the near future
 - 📫  
--     Discord https://discord.com/channels/kev0#5174 //
--     E-mail karodrigues97@outlook.com // 
+-     Discord https://discord.com/channels/kev0#5174 
+-     E-mail karodrigues97@outlook.com  
 -     Instagram https://www.instagram.com/hellaw3ird/ 
 
 - 😄 He/They
